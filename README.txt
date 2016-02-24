@@ -1,1 +1,1 @@
-Silence is sometime better than noise
+Silence is sometimes better than noise
